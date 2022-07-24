@@ -1,0 +1,10 @@
+ergew
+erged
+gwe
+gd
+hgt
+chr(thdf
+    bdbbdg
+fgdgh
+dghdgh)
+egdg
